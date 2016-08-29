@@ -1,2 +1,22 @@
-# sites-com-imagens--gratis
-sujestões de sites com imagens de graça
+# sujestões de sites com imagens de graça :D
+- https://unsplash.com
+- http://negativespace.co/
+- http://deathtothestockphoto.com/
+- http://fancycrave.com/
+- http://kaboompics.com/
+- https://picjumbo.com/
+- http://lockandstockphotos.com/
+- http://startupstockphotos.com/
+- http://www.lifeofpix.com/
+- http://www.splitshire.com/
+- http://www.gratisography.com/
+- http://jaymantri.com/
+- https://www.pexels.com/
+- http://littlevisuals.co/
+- http://images.superfamous.com/
+- http://nos.twnsnd.co/
+- http://getrefe.tumblr.com/
+- https://foodiesfeed.com//
+- http://jeshoots.com/
+- http://www.uhdwallpapers.org/p/creative-commons-images.html
+- https://pixabay.com/
